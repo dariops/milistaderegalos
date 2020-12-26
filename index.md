@@ -24,3 +24,5 @@
 ## cuarto
 
 -espejo pared [enlace](https://www.ikea.com/es/es/p/nissedal-espejo-blanco-30320316/)
+
+gracias por ver
