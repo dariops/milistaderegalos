@@ -21,6 +21,6 @@
 
 -funko pop x-men [enlace](https://www.amazon.es/Funko-Pop-Marvel-20th-Wolverine-Coleccionable/dp/B082FS24N3/ref=sr_1_17?__mk_es_ES=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=3HVVKH653387B&dchild=1&keywords=funko+pop+x-men&qid=1608939244&sprefix=funko+pop+x-%2Caps%2C170&sr=8-17)
 
-##cuarto
+## cuarto
 
 -espejo pared [enlace](https://www.ikea.com/es/es/p/nissedal-espejo-blanco-30320316/)
