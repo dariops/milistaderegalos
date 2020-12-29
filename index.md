@@ -29,4 +29,4 @@ cosas que con suerte me regalan
 
 -luces led [enlace](https://www.amazon.es/HOVVIDA-Bluetooth-Habitaci%C3%B3n-Controladas-Controlador/dp/B08DHV1NCT/ref=sr_1_11?__mk_es_ES=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=luces+led&qid=1609261370&sr=8-11)
 
-gracias por ver 
+gracias por ver y felices fiestas
