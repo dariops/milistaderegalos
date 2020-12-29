@@ -2,6 +2,8 @@
 
  Muchas gracias y felices fiestas
 
+cosas que con suerte me regalan
+
 - Samsung note 10 [enlace](https://www.amazon.com/-/es/Galaxy-Note-10/dp/B07Z43S4XB/ref=sr_1_7?__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=2HFO9SMHIF924&dchild=1&keywords=note+10+lite&qid=1608923415&sprefix=note+10+%2Caps%2C236&sr=)
 
 - Alexa [enlace](https://www.amazon.com/Echo-Dot-3ra-Gen-inteligente/dp/B07FZ8S74R/ref=sr_1_5_sspa?__mk_es_US=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=3TB2OA2X19KN9&dchild=1&keywords=alexa&qid=1608923712&sprefix=ale%2Caps%2C239&sr=8-5-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUE3VU5DRjYwTDNTRzMmZW5jcnlwdGVkSWQ9QTEwMzAwNDMzRk9FSzVMWk41T1ZLJmVuY3J5cHRlZEFkSWQ9QTAyNjQwODkxWTJUVDk4VFNHRE1XJndpZGdldE5hbWU9c3BfbXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==)
@@ -23,6 +25,8 @@
 
 ## cuarto
 
--espejo pared [enlace](https://www.ikea.com/es/es/p/nissedal-espejo-blanco-30320316/)
+-espejo pared [enlace](https://www.ikea.com/es/es/p/nissedal-espejo-blanco-30320316
 
-gracias por ver
+-luces led [enlace](https://www.amazon.es/HOVVIDA-Bluetooth-Habitaci%C3%B3n-Controladas-Controlador/dp/B08DHV1NCT/ref=sr_1_11?__mk_es_ES=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=luces+led&qid=1609261370&sr=8-11)
+
+gracias por ver 
