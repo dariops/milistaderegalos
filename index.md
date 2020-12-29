@@ -27,6 +27,6 @@ cosas que con suerte me regalan
 
 -espejo pared [enlace](https://www.ikea.com/es/es/p/nissedal-espejo-blanco-30320316)
 
--luces led [enlace](https://www.amazon.es/HOVVIDA-Bluetooth-Habitaci%C3%B3n-Controladas-Controlador/dp/B08DHV1NCT/ref=sr_1_11?__mk_es_ES=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=luces+led&qid=1609261370&sr=8-11)
+-luces led [enlace](https://www.amazon.es/Compatible-Aplicaci%C3%B3n-Sincronizaci%C3%B3n-Decoraci%C3%B3n-Bricolaje/dp/B08MBY1ZVT/ref=sr_1_23?__mk_es_ES=%C3%85M%C3%85%C5%BD%C3%95%C3%91&dchild=1&keywords=luces%2Bled%2B15m%2Bcompatibles%2Bcon%2Balexa&qid=1609281850&s=lighting&sr=1-23&th=1)
 
 gracias por ver y felices fiestas 
